@@ -1,0 +1,2 @@
+# premium-tabla-001-tabla-shell-and-syahi-applicat
+Tired of losing track of which tabla shell has had its third syahi coat and which is still curing?  This Notion template turns the chaotic, overlapping workflow of shell preparation and syahi application into a clear, chronological system. With dedicated databases and linked records, you’ll never miss a curing milestone or mix up your drums again.
